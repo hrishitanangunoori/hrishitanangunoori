@@ -29,4 +29,3 @@ I am actively looking to collaborate on **open-source projects**, specifically t
 ### 📫 Let's Connect!
 * **Email:** hrishita.nangunoori@gmail.com
 * **LinkedIn:** [linkedin.com/in/hrishitanangunoori](https://www.linkedin.com/in/hrishitanangunoori/)
-* **Portfolio/Website:** [If you have one, link it here!]
